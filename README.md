@@ -1,3 +1,3 @@
-### Hi, I'm Rheia Mae!
+<img width="320" height="160" alt="image" src="https://github.com/user-attachments/assets/3fd124fe-657e-41e4-853a-71c0503a3037" />### Hi, I'm Rheia Mae!
 
-<img src="https://img.itch.zone/aW1nLzIyNDIyNTM2LnBuZw==/original/n4W0PW.png" loading="lazy" width="50"> <img src="https://img.itch.zone/aW1nLzIyNDIyNTUwLnBuZw==/original/FdtOsX.png" loading="lazy" width="50">
+<img src="https://img.itch.zone/aW1nLzIyNDIyNTM2LnBuZw==/original/n4W0PW.png" loading="lazy" width="50"> <img src="https://img.itch.zone/aW1nLzIyNDIyNTUwLnBuZw==/original/FdtOsX.png" loading="lazy" width="50"> <img src="https://img.itch.zone/aW1nLzIyNDIyNTM2LnBuZw==/original/n4W0PW.png" loading="lazy" width="50"> <img src="https://img.itch.zone/aW1nLzIyNDIyNTI2LnBuZw==/original/6%2B4ITP.png" loading="lazy" width="50"> <img src="https://img.itch.zone/aW1nLzIyNDIyNTYwLnBuZw==/original/yWR4EP.png" loading="lazy" width="50"> <img src="https://img.itch.zone/aW1nLzIyNDIyNTY5LnBuZw==/original/721iYs.png" loading="lazy" width="50">
